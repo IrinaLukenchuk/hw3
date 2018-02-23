@@ -8,4 +8,4 @@
 
 Опрос был о моем родном городе, о его истории и современном состоянии. Делая его, я постаралась справиться с чувством огромной ностальгии:)
 
-*Ссылка на таблицу ответов: https://docs.google.com/spreadsheets/d/1aFw2xpk_afIuHsTYP9qjG8iWvyBCoiMzVm0pfh-noso/edit#gid=2114342126&fvid=143541182*
+*Ссылка на таблицу ответов: https://docs.google.com/spreadsheets/d/1aFw2xpk_afIuHsTYP9qjG8iWvyBCoiMzVm0pfh-noso/edit?usp=sharing*
