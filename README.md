@@ -7,3 +7,5 @@
 *Ссылка на редактирование опроса: https://docs.google.com/forms/d/198e621sre-_bZdGtu8IaOL20h-WYudng2r1v3Nz2j20/edit?usp=sharing*
 
 Опрос был о моем родном городе, о его истории и современном состоянии. Делая его, я постаралась справиться с чувством огромной ностальгии:)
+
+*Ссылка на таблицу ответов: https://docs.google.com/spreadsheets/d/1aFw2xpk_afIuHsTYP9qjG8iWvyBCoiMzVm0pfh-noso/edit#gid=2114342126&fvid=143541182*
